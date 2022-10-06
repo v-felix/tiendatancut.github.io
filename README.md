@@ -1,1 +1,1 @@
-# tiendatancut.github-.io
+# tiendatancut.github.io
